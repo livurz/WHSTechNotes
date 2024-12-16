@@ -38,3 +38,5 @@ The recent protest in downtown Austin, where a large group of citizens gathered 
 Technology has significantly transformed the food industry, making food more accessible and affordable, particularly during the holiday season, through advancements in farming practices, streamlined distribution networks, and online shopping platforms; however, overreliance on technology can lead to concerns like potential disruptions in the supply chain due to technical failures, reduced food diversity, and potential environmental impacts from intensive farming practices utilizing advanced technology.
 # december 2, 2024 
 A recent significant development in AI is the advancement of "generative AI models" like Google's Bard or OpenAI's ChatGPT, which can create highly realistic text, code, images, and other forms of content based on user prompts, effectively mimicking human creativity and expression. 
+# december 16, 2024
+yes i am ready for winter break
