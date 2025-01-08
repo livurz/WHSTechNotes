@@ -40,3 +40,5 @@ Technology has significantly transformed the food industry, making food more acc
 A recent significant development in AI is the advancement of "generative AI models" like Google's Bard or OpenAI's ChatGPT, which can create highly realistic text, code, images, and other forms of content based on user prompts, effectively mimicking human creativity and expression. 
 # december 16, 2024
 yes i am ready for winter break
+# january 8, 2025 
+i like how it is easy going and how chill it is more learning 
