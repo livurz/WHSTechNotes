@@ -42,3 +42,7 @@ A recent significant development in AI is the advancement of "generative AI mode
 yes i am ready for winter break
 # january 8, 2025 
 i like how it is easy going and how chill it is more learning 
+# january 13, 2025 
+AI Overview
+Learn more
+The shift towards prioritizing AI skills in the tech industry is a complex one, with the potential to both enhance and limit opportunities for workers depending on how individuals adapt and the specific roles they hold. While AI can automate certain tasks, it also creates new opportunities for those who acquire the necessary skills to work alongside and leverage these technologies effectively. 
