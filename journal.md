@@ -45,3 +45,6 @@ i like how it is easy going and how chill it is more learning
 # january 13, 2025 
 
 The shift towards prioritizing AI skills in the tech industry is a complex one, with the potential to both enhance and limit opportunities for workers depending on how individuals adapt and the specific roles they hold. While AI can automate certain tasks, it also creates new opportunities for those who acquire the necessary skills to work alongside and leverage these technologies effectively. 
+# january 22, 2025
+What was the Supreme Court ruling on the TikTok ban?
+In a much-anticipated decision, the U.S. Supreme Court upheld the Protecting Americans from Foreign Adversary Controlled Applications Act, signed into law on April 24, 2024, requiring ByteDance, the TikTok app's Chinese parent company, to divest its interest in TikTok 
