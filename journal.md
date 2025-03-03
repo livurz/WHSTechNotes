@@ -56,3 +56,7 @@ The evolution of AI in sports has been a gradual yet definitive process. Over th
 i learned in bioligy that trees can communicate with each other 
 # february 24, 2025
  its rapid evolution reflects the dynamic nature of language, often driven by new cultural trends and social media influences, allowing young people to express themselves creatively and establish a sense of belonging within their peer group. 
+# march 3, 2025 
+Reflecting on last Friday's class with the substitute teacher, it's clear that our behavior could have been significantly more respectful and cooperative, making their job considerably harder than it needed to be. Frequent disruptions, lack of focus, and not following instructions likely left the substitute feeling overwhelmed and frustrated by the end of the day. If we could go back, the most important change would be to actively listen, follow directions promptly, and demonstrate a genuine effort to engage with the lesson, minimizing unnecessary distractions and showing greater consideration for the substitute's role.
+To ensure a positive experience for future substitutes, I will personally commit to setting a positive example by actively participating, asking thoughtful questions, and being mindful of my behavior. Additionally, I will actively encourage classmates to show the same level of respect and cooperation, making a concerted effort to create a welcoming and supportive learning environment for any temporary teacher who enters our classroom.
+
