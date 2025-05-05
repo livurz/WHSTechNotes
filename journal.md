@@ -69,3 +69,5 @@ i think it is normal to feel mix emotions for the star test because some people 
 One of the most practical applications of this technology for college students is using AI tools to generate practice questions based on assignments or reading materials. This approach not only reinforces learning but also prepares students to think critically about their courseworkThrough adaptive learning technologies, artificial intelligence can analyze a student's strengths, weaknesses, learning pace and preferences. This data allows AI systems to provide customized lesson plans and resources, ensuring that students receive instruction that is best suited to their individual learning styles
 # april 14, 2025 
 Cell phone bans in schools can have both beneficial and detrimental effects on students. While they may reduce distractions and potential for cheating, they also limit access to communication and learning tools, potentially leading to increased student stress and resistance. 
+# may 5, 2025
+i think 100 men can defeat a gorilla if they are all determan and they can overwelm the gorlia 
