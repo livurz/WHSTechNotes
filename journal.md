@@ -73,3 +73,5 @@ Cell phone bans in schools can have both beneficial and detrimental effects on s
 i think 100 men can defeat a gorilla if they are all determan and they can overwelm the gorlia 
 # may 12, 2025
 i think they can go to jail becasue of the arsson and that is a big fellonly 
+# may 19, 2025
+yes i am ready for the summer
